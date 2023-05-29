@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Lucid!:
+# 👋 Hi, I'm Lucid!
 I'm a 15 year old freelance graphic designer & skripter.
 
 
